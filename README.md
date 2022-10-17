@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything you are stuck on, i might not be able to tell you a solution but will certainly try my best.
 - 📫 How to reach me @: na.sha.delhi@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: nothing interesting
+- ⚡ Fun fact: ...
 
